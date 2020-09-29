@@ -6,6 +6,6 @@ they don't scratch or hiss,
 
 Rodents are better than birds,
 
-they're cuter and very small
+they're cuter and a small gift
 
 
